@@ -5,4 +5,4 @@
 　　　　　　　　　　　　　　　　
 ![114xts](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/63262a3e-4e51-476d-b20f-cfd834aff933) **MAY** . LULU
 
-　　　　　　　　　　　　__THEY / THEM__ , ~~MINOR~~ ![IMG-9624](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/dc22cc82-920f-40e9-9dcd-4084631d85be)
+　　　　　　　　　　　　　　　　　　__THEY / THEM__ , ~~MINOR~~ ![IMG-9624](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/dc22cc82-920f-40e9-9dcd-4084631d85be)
