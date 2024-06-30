@@ -10,3 +10,5 @@
 
     
   　　　　![te14xn](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/d17f9a21-7f14-42e1-9357-ad1e9e647617)　　 [see also](https://www.patreon.com/user/about?u=98504935)　　.　　[see also](https://pronouns.cc/@togeinumaki)　　.　　[sign my retrospring](https://retrospring.net/@gooicide)
+
+![Untitled379-20240122075348](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/c07c4218-f92d-4e1c-9d38-c1c9cdac7c8b)
