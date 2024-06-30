@@ -9,4 +9,4 @@
 　　　　　　　　　　　　　　　　　　__THEY / THEM__ , ~~MINOR~~ ![IMG-9624](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/dc22cc82-920f-40e9-9dcd-4084631d85be)
 
     
-  ![te14xn](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/d17f9a21-7f14-42e1-9357-ad1e9e647617) [see also](https://www.patreon.com/user/about?u=98504935)
+  　　　　![te14xn](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/d17f9a21-7f14-42e1-9357-ad1e9e647617) [see also](https://www.patreon.com/user/about?u=98504935)
