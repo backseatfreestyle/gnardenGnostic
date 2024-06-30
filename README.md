@@ -3,4 +3,6 @@
 　　　　　　![fc06e7d36f2201958d757dc4f73cea38](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/898ffe97-9e8e-43ee-aca0-47617bf51ec2)
 
 　　　　　　　　　　　　　　　　
-![114xts](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/63262a3e-4e51-476d-b20f-cfd834aff933)
+![114xts](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/63262a3e-4e51-476d-b20f-cfd834aff933) **MAY** . LULU
+
+__THEY / THEM__ , ~~MINOR~~ ![IMG-9624](https://github.com/gnardenGnostic/gnardenGnostic/assets/171537461/dc22cc82-920f-40e9-9dcd-4084631d85be)
